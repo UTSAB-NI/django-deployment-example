@@ -1,0 +1,1 @@
+This file contain the trozan virus make sure to delete this file before getting hacked.
